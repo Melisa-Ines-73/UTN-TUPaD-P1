@@ -11,7 +11,7 @@ Melisa Martellini: DNI 37607449
 Fabricio Puccio : DNI 33981714
 
 
-Enlace de video: https://youtu.be/mIdj967r6do
+Enlace de video Youtube: https://www.youtube.com/watch?v=2QtdzjVDGC4
 Enlace de video drive: https://drive.google.com/file/d/1a7XL8mc7ha258Ko44aEqHM5iZmz106c5/view?usp=sharing
 
 
